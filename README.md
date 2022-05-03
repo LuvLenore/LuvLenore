@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Lenore
+- 👀 I’m interested in your mom and learning code
+- 🌱 I’m currently learning, nothing
+- 💞️ I’m looking to collaborate on joe
+- 📫 How to reach me Lenore#1234
